@@ -1,0 +1,1 @@
+# locabo-rice-puzzle
